@@ -4,6 +4,8 @@ Use tone tags if we don't know eachother especially if you know very well the wa
 
 besides basic dni, DNI... whatever is this:
 
+ if OCs or OC x canon bothers you. 
+
 "my ship is better", "he/she loves me more", "ew hetslop", "they breathed near eachother!! it's yuri/yaoi!!"... I think you know why. 
 
 "doubles dni" u might DNI with me already as well tbh.
