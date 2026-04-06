@@ -4,7 +4,7 @@ Use tone tags if we don't know eachother especially if you know very well the wa
 
 besides basic dni, DNI... whatever is this:
 
- if OCs or OC x canon bothers you. 
+if OCs or OC x canon bothers you. 
 
 "my ship is better", "he/she loves me more", "ew hetslop", "they breathed near eachother!! it's yuri/yaoi!!"... I think you know why. 
 
@@ -12,6 +12,12 @@ besides basic dni, DNI... whatever is this:
 
 DNI if you support and sit next to proshippers etc. KNOWING that's who they are.
 
-dni if you ship/like incest. I'm talking about ALL sorts of incestous dynamics.
+dni if you ship/like/support/write incest. I'm talking about ALL sorts of incestous dynamics, implied included. Idc if it's normal in whatever series it is you're watching for plot/lore reasons. It's still weird, there's no valid excuse. Same thing if you ship adoptive siblings. 
+
+omegaverse bullshit DNI unless obvious satire. I have an unfavorable opinion towards this type of reading material and honestly I don't want to see this stuff.
+
+dni if you read those MLM/WLW things where rape is considered "complimentary necessary plot", overly-feminizes one of the people in the relationship or makes them heavily infantilized. EW.
 
 dni if you genuinely sexualize or ship yourself with pokemon, or overuse the same "did you know vaporeon.." yes, yes I know and I WISH I didn't! It's a silly water fox that's ALL!
+
+"Miguel O'Hara fans" from TikTok/Twitter DNI. I'm talking about the specific brand of fans who oversexualized and mischaracterized him SO bad it felt like those "Y/N x alpha CEO" videos rather than Miguel.
