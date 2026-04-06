@@ -2,9 +2,15 @@ cuddle or hide on PT is okay if you ask first. Do NOT pull me into roleplays, ca
 
 Use tone tags if we don't know eachother especially if you know very well the way you worded something is confusing.
 
+I don't have a problem with selfshippers/yumeshippers/whateverotherterm but separate fiction from reality please. If the pony I'm using happens to be one of your f/o's that DOES NOT equal permission for you to act like I'm your f/o. 
+
 besides basic dni, DNI... whatever is this:
 
-if OCs or OC x canon bothers you. 
+if OCs or OC x canon bothers you.
+
+If genuinely believe you own a character simply because they're your f/o.
+
+if you act as though the fact somebody who knows all the lore of a game franchise, watched multiple games but for ANY reason hasn't played the game is a "larper"(spoiler: they're just as much of a fan.). Yes, this is targeted.
 
 "my ship is better", "he/she loves me more", "ew hetslop", "they breathed near eachother!! it's yuri/yaoi!!"... I think you know why. 
 
