@@ -26,4 +26,6 @@ dni if you read those MLM/WLW things where rape is considered "complimentary nec
 
 dni if you genuinely sexualize or ship yourself with pokemon, or overuse the same "did you know vaporeon.." yes, yes I know and I WISH I didn't! It's a silly water fox that's ALL!
 
-"Miguel O'Hara fans" from TikTok/Twitter DNI. I'm talking about the specific brand of fans who oversexualized and mischaracterized him SO bad it felt like those "Y/N x alpha CEO" videos rather than Miguel.
+"Miguel O'Hara fans" from TikTok/Twitter DNI. I'm talking about the specific brand of fans who oversexualized and mischaracterized him SO bad it felt like those "Y/N x alpha CEO" videos rather than Miguel and made heavily infatilized ocs to pair him with.
+
+Coffin of Andy and Leyley, Scott Pilgrim adjacent media also dni.
