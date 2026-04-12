@@ -1,6 +1,6 @@
-cuddle or hide on PT is okay if you ask first. Do NOT pull me into roleplays, canon x canon or oc x canon if you see me. I don't have the roleplay tag for a reason, it makes me uncomfortable when random ppl do it! 
+cuddle or hide on PT is okay if you ask first. Do NOT pull me into roleplays, randomly or in general.
 
-Use tone tags if we don't know eachother especially if you know very well the way you worded something is confusing.
+Use tone tags if we don't know eachother especially if you know very well the way you worded something could be confusing.
 
 I don't have a problem with selfshippers/yumeshippers/whateverotherterm but separate fiction from reality please. If the pony I'm using happens to be one of your f/o's that DOES NOT equal permission for you to act like I'm your f/o. 
 
@@ -18,7 +18,7 @@ if you act as though the fact somebody who knows all the lore of a game franchis
 
 DNI if you support and sit next to proshippers etc. KNOWING that's who they are.
 
-dni if you ship/like/support/write incest. I'm talking about ALL sorts of incestous dynamics, implied included. Idc if it's normal in whatever series it is you're watching for plot/lore reasons. It's still weird, there's no valid excuse. Same thing if you ship adoptive siblings. 
+dni if you ship/like/support/write incest. I'm talking about ALL sorts of incestous dynamics, implied included. Idc if it's normal in whatever series it is you're watching for plot/lore reasons. It's still weird, there's no valid excuse. Same thing if you ship adoptive siblings. I cannot stress this enough, leave me alone.
 
 omegaverse bullshit DNI unless obvious satire. I have an unfavorable opinion towards this type of reading material and honestly I don't want to see this stuff.
 
@@ -28,4 +28,4 @@ dni if you genuinely sexualize or ship yourself with pokemon, or overuse the sam
 
 "Miguel O'Hara fans" from TikTok/Twitter DNI. I'm talking about the specific brand of fans who oversexualized and mischaracterized him SO bad it felt like those "Y/N x alpha CEO" videos rather than Miguel and made heavily infatilized ocs to pair him with.
 
-Coffin of Andy and Leyley, Scott Pilgrim adjacent media also dni.
+Coffin of Andy and Leyley, Scott Pilgrim, Rick & Morty, Hazbin Hotel & Helluva Boss.
